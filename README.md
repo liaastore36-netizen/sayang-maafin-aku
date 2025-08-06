@@ -1,2 +1,0 @@
-# sayang-maafin-aku
-web
